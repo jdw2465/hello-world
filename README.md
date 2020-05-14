@@ -1,3 +1,3 @@
 # hello-world
 My sand box
-Can we really move this fast and still create intelligent things? What about the Thinking Eye? What about pondering? I've rarely gotten inspiration while moving at the speed of sound.
+Can we really move this fast and still create intelligent things? What about the Thinking Eye? What about pondering? I've rarely gotten inspiration while moving at the speed of sound. And yet, here we are, moving at the speed of sound. What about the need to let ideas ferment? What if they'd given Van Gogh one afternoon to paint his Almond Blossom? 
